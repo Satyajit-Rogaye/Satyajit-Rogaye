@@ -5,7 +5,7 @@ Email Me 👉 ✉️ **satyajitrogaye052@gmail.com** For Collaboration/Project o
 
 - 🌱 **I’m currently learning:** Last Year BSC In Information Technology
 - 💬 **Ask me about:** Collaboration, Amazing and Interesting Ideas
-- 📫 **How to reach me:** Enter your email here
+- 📫 **How to reach me:** satyajitrogaye052@gmail.com
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
 
 ## 🌐 Socials:
